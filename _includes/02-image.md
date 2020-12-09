@@ -1,0 +1,1 @@
+![Imagen Vacía](https://)
